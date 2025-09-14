@@ -1,5 +1,3 @@
-# Moderator After 2 Years: 5 Million Diamond Blocks Deposited to Admin [[Guizzu]]'s Chest
-
 **September 13, 2025 - 13:25**
 
 After Admin [[Guizzu]] served as Housing Moderator, over 5 million diamond blocks in cash were deposited into his personal chest within 30 months.
